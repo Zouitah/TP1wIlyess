@@ -44,7 +44,7 @@ Je représente
 L'École du micro d'argent
 L'École du micro d'argent
 
-(Ajoute le text manquant ici))
+(Ajoute le text manquant ici)
 
 L'École du micro d'argent
 L'École du micro d'argent
